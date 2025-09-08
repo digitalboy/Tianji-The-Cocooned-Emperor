@@ -1,6 +1,6 @@
 ### **小说规划蓝图**
 
-**书名：《天机：茧中君王》 (Tianji: The Cocooned Monarch)**
+**书名：《天机》 (Tianji)**
 
 **一句话故事梗概 (Logline):**
 
